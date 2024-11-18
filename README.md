@@ -1,1 +1,1 @@
-# home of jdeslip.com
+# home of cloudgamingnews.com
